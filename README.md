@@ -9,3 +9,5 @@
    ~OMORI~
 
    ### ~NÃO PERTUBE~
+
+   @miss.vt_girl
