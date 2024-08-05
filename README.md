@@ -1,6 +1,6 @@
- ### ✨i am a mushroom 🍄💊✨
+ ### ✨i am a mushroom 🍄💊✨  
 
-~✨✨✨~
+~✨✨~
 
  - _Pilz 🍄_
 
@@ -11,3 +11,8 @@
    ### ~NÃO PERTUBE~
 
    @miss.vt_girl
+
+![](https://media1.tenor.com/m/Lg21skpXtU4AAAAC/cat-meme.gif)
+
+![](https://media1.tenor.com/m/-qBsG1HwR4oAAAAC/cat-dance-dancing-cat.gif)
+
